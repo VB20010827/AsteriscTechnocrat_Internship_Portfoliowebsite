@@ -1,1 +1,1 @@
-# AsteriscTechnocrat_Internship_Portfoliowebsite
+# AsteriscTechnocrat_Internship_Portfoliowebsit
